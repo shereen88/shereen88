@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shereen88
+- 👋 Hi, I’m Shereen
 - 👀 I’m interested in coding and designing
 - 🌱 I’m currently working
 - 💞️ I’m looking to collaborate on client related projects
